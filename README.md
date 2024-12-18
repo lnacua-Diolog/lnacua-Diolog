@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lnacua-Diolog
-- 👀 I’m interested in a ravebae
+- 👀 I’m interested in Sudoku
 - 🌱 I’m currently learning how to touch grass
 - 💞️ I’m looking to collaborate on something cool and fun
 - 📫 How to reach me: You don't (lauren@diolog.com.au)
